@@ -1,1 +1,0 @@
-# escultura-artieda7tts2
